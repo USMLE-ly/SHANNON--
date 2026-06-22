@@ -1,1 +1,0 @@
-You can use http://gen.lib.rus.ec/  to download, but it is too slow.

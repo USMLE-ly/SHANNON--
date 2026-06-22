@@ -1,1 +1,0 @@
-@grv87 I see sad to see I like this software but am not a very good coder so cannot rewrite and fix it sadly. Thanks for your reply
